@@ -1,0 +1,1 @@
+# smart-home-automation-by-sinric-pro-
